@@ -4,7 +4,7 @@
 
 <직장인 엑셀력을 바꾸는 시간, 15분>
 
-1강: https://www.youtube.com/watch?v=4nFQWs0VF1I&list=PLnpFD3tRtypQrLBK1to9h7RNfb-v2yEP5&index=1&t=164s
+✅1강: https://www.youtube.com/watch?v=4nFQWs0VF1I&list=PLnpFD3tRtypQrLBK1to9h7RNfb-v2yEP5&index=1&t=164s
 
 2강: https://www.youtube.com/watch?v=MfFw_ckuAI8&list=PLnpFD3tRtypQrLBK1to9h7RNfb-v2yEP5&index=2
 
